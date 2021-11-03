@@ -1,0 +1,1 @@
+Such a simple project. One I would have skipped over in the past but not this time. Not only has it been a good coding project, solidifing basics instead of glossing over, it has been an excelent typing tutorial. Finally learning how to touch type after 35 years of using computers.
